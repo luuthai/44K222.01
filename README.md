@@ -11,3 +11,6 @@ https://drive.google.com/drive/folders/1WLS9O9NRYQBE502ryJ2jAjoYJ3rkaRCg?usp=sha
 
 ##Tài Nguyên Themes & Plugin Đa Nhà Cung Cấp
 https://drive.google.com/drive/folders/11zBdzCIK0MDhJhNVQ-9c0zio6r4Q72gN?usp=sharing
+
+##Chính sách Vân Hạc Mộng
+https://drive.google.com/file/d/1-yJrDONjbLicvgVmYiHkZtgMylwcpe87/view?usp=sharing
